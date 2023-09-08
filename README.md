@@ -1,1 +1,1 @@
-# RESAT_1_kimOsung
+# RESAT_1_김O성
